@@ -12,3 +12,8 @@ Actualmente estoy recursando PDEP, el tema de la programacion la verdad es algo 
 
 ## Esta foto es del 2023 antes de inicar la carrera (es la foto de mi mail de facultad tambien jjaja) 
 ![Mi foto](IMG_7102.jpeg)
+
+#Algunos de Mis Hobbies
+
+Me gustan los deportes, voy al gym, me gusta el Padel, si hay algunos interesados en armar un partidito me uno jaja, 
+No soy bueno jugando a jueguitos de Pc pero lo intento, jajja asique si quieren agregarme aca mi usuario de Ds: vicentinofr05
